@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Damien128bit
+- 👀 I’m interested in ... Code, Code, Code, World Domination, And Code
+- 🌱 I’m currently learning ... Python 
+- 📫 How to reach me ... Email. dwsnjck19@gmail.com
